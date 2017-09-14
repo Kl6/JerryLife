@@ -1,3 +1,3 @@
 # JerryLife
-Musings 
+Musings. 
 Student of Life. Williams College '18. 
